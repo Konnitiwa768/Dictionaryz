@@ -1,0 +1,2 @@
+# Dictionaryz
+https://chatgpt.com
